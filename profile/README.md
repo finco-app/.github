@@ -5,7 +5,7 @@
 ## Entre em contato
 
 Fale com nosso time de suporte [suporte@finco.app.br](mailto://suporte@finco.app.br).<br />
-Fale com nosso time de negócios [comercial@finco.app.br](mailto://comercial@finco.app.br).
+Contato para negócios [wygor@finco.app.br](mailto://wygor@finco.app.br).
 
 👋 [Visite nosso website](https://finco.app.br)
-📦 [Baixe o APP na PlayStore](https://play.google.com/store/apps/details?id=br.app.finco.finco_app)
+📦 [Baixe o APP na PlayStore - Em breve!](https://play.google.com/store/apps/details?id=br.app.finco.finco_app)
